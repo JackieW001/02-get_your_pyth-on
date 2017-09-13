@@ -1,1 +1,1 @@
-# MochiIceCream
+# Mochi Ice Cream
